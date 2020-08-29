@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Love her
+2. Love her more
+3. Only love her
